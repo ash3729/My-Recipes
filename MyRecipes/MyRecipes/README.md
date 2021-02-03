@@ -4,7 +4,7 @@
 
 Preheat your oven to 350 degrees F and prep your cake pans by lining them with circles of parchment paper in the bottoms, then spray bottoms and sides with cooking spray.
 
-Whisk all the dry ingredients together first – flour, baking soda, cocoa powder, and salt – and set them aside.
+Whisk all the dry ingredients together first – flour, baking soda, cocoa powder, and salt (and soup also if you dislike salt, reduce the salt also) – and set them aside.
 
 Beat butter and sugar together until light and creamy – about 3-4 minutes using a hand mixer or stand mixer. Then add the oil and beat again, scraping down the sides of the bowl.
  The mixture will look a little curdled, but there’s nothing to worry about.
