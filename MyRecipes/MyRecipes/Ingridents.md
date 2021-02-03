@@ -18,3 +18,4 @@
 
 # 1 cup (240ml) canola or vegetable oil.
 
+# 1 soup of memes! (100 kg)
